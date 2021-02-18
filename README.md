@@ -2,7 +2,8 @@
 - 👀 I’m interested in minecraft hack client 
 - 🌱 I’m currently learning on how to make a minecraft hack client 
 - 💞️ I’m looking to collaborate on minecraft
-- 📫 How to reach me tabnoob28@gmail.com
+- 📫 How to reach me  
+- discrd cheese man#8425 https://discord.gg/N9yPMxgJ22 
 
 
 <!---
